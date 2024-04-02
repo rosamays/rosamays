@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning group data analysis after extreme performances. 
 - 💞️ I’m looking to collaborate on graded lifestyle goals including apprenticeships, luxury and institutions.
 - 📫 How to reach me i37711165@gmail.com
-- 😄 Pronouns: I
+- 😄 Pronouns: I And please note collaborators are red alert and robotically inclined. bots rooms in chat were the place to be. 
 - ⚡ Fun fact: Make an "X" on paper from corner to corner and fold it. 
 
 <!---
